@@ -4,7 +4,7 @@
 
 ## [Play Sprunki Kiss Game Online >>>](https://sprunkikiss.pro/)  
 
-![Sprunki Kiss](https://sprunkikiss.pro/sprunkikiss.jpg)  
+![Sprunki Kiss](https://sprunkikiss.pro/sprunki-kiss.jpg)  
 
 **“Sprunki Kiss”** is a captivating fan-made mod of the beloved Sprunki universe, adding a romantic twist to the music-making experience. This innovative mod combines heartfelt storytelling, dynamic visuals, and Sprunki’s engaging gameplay.  
 
